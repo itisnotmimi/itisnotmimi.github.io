@@ -1,2 +1,2 @@
-# psychic_avocado.github.io
+# itisnotmimi.github.io
 Testing the waters.
